@@ -1,0 +1,1 @@
+pollo, huevo, pan rallado
